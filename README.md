@@ -15,5 +15,6 @@
 
 ## Connect with Me
 - [LinkedIn](https://www.linkedin.com/in/harshil-suthar-/)
+- [Instagram](https://www.instagram.com/harshil_mewada_)
 
 Thank you for visiting my profile! Feel free to reach out if you have any questions or if you'd like to collaborate on a project.

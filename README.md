@@ -1,4 +1,3 @@
-# Harshil-Suthar
 # Hi there, I'm Harshil 👋
 
 ## 🚀 About Me
